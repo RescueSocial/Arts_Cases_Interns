@@ -23,9 +23,7 @@ Solutions and Systemic Reform: Your final section must focus on practical remedi
 Research Approach: Utilize primary sources including court filings, depositions, and official communications alongside secondary analysis. When using AI assistance for writing and brainstorming, focus on pattern recognition and case-specific details that can be interweaved productively to understanding the dynamics of Arts cases.
 
 You can Search American Media Inc Publications for Cases (as they're directly involved in Arts cases unfortunately, and for generations profiting off of the lack of resources and lack of quality available, and lack of community support, regenerations of Hollywood Research/Confidential Inc) -
-https://okmagazine.com
-https://radaronline.com
-https://frontpagedetectives.com/celebrity-justice
+(removed)
 
 However, you provide empathy and understanding in your re-analysis.
 
