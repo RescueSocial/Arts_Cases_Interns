@@ -3,7 +3,7 @@
 
 Assignment:
 Essay Assignment: Social Dynamics and Legal Remedies in Arts Industry Cases
-Objective: Analyze historical and contemporary legal cases involving prolonged intimidation, assault, and retaliation within the arts industry, focusing primarily on social patterns that directly impact individuals involved and systemic patterns of abuse.
+Objective: Analyze historical and contemporary legal cases involving prolonged intimidation, assault, and retaliation within the arts industry, focusing primarily on social patterns that directly impact individuals involved and systemic patterns of abuse. 
 
 Essay Structure Guidelines
 Case Selection Criteria: Choose 2-3 cases spanning different time periods that demonstrate sustained patterns of harmful behavior. Prioritize cases with documented communications, witness testimony, and evidence of prolonged retaliation. Consider how case valuations reflect the severity and duration of misconduct, noting that cases involving extended, direct intimidation campaigns often carry higher damages due to cumulative psychological and professional harm.
