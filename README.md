@@ -2,7 +2,7 @@
 <b>Arts Cases (Conduct related and Arts, Film, Music related cases)</b>
 
 ### Assignment:
-<b> Assignment</b>: Social Dynamics and Legal Remedies in Arts Industry Cases
+<b> Assignment</b>: Social Dynamics and Legal Remedies in Arts Industry Cases<br>
 Objective: Analyze historical and contemporary legal cases involving prolonged intimidation, assault, and retaliation within the arts industry, focusing primarily on social patterns that directly impact individuals involved and systemic patterns of abuse.
 
 ### Essay Structure Guidelines
