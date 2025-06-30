@@ -1,5 +1,5 @@
 # Arts_Cases_Interns
-<b>Arts Cases (Conduct related and Arts, Film, Music related cases)</b> 
+<b>Arts Cases (Conduct related and Arts, Film, Music related cases)</b>
 
 ### Assignment:
 <b> Assignment</b>: Social Dynamics and Legal Remedies in Arts Industry Cases<br>
